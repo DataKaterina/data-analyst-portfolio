@@ -37,3 +37,4 @@
 ## Контакты
 
 - Telegram: @ro_kare
+- LinkedIn: www.linkedin.com/in/ro-kate
